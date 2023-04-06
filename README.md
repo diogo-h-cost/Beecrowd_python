@@ -1,3 +1,3 @@
 # Códigos >> Beecrowd
-------------------------
+
 ###### >> Diogo Costa <<
